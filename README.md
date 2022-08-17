@@ -108,7 +108,10 @@ Nos comprometemos com a construção de um ambiente de trabalho diverso. Todas a
 
 Se increva em nossa plataforma
 
+
 https://jobs.kenoby.com/remessaonline/job/back-end-software-developer-app-senior/62ea6d67a413ba3a17684002?utm_source=website
+
+https://www.linkedin.com/company/remessaonline/mycompany/
 
 
 Venha ser #RevolutionMakers e se junte ao time que está revolucionando as transações financeiras! 🚀💙
