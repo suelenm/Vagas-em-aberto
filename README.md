@@ -9,9 +9,6 @@ Somos uma plataforma de mobilidade financeira que faz o seu dinheiro falar a lí
 SOMOS REVOLUTION MAKERS - Aqui, você encontrará pessoas que vestem a camisa e que estão dispostas a acelerar o nosso crescimento e a criar um mundo ainda maior e mais conectado!
 
 
-Estamos em um busca de uma pessoa de data analytics, que será responsável por conduzir a construção e manutenção dos indicadores da área de CX da Remessa Online.
-
-
 
 Como será o dia a dia 🚀
 
